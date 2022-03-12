@@ -1,1 +1,0 @@
-# getsmm.github.io
